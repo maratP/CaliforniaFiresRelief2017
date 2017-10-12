@@ -65,8 +65,6 @@
 - Russian River Health Center, 16319 Third St., Guerneville
 - Occidental Health Center, 3802 Main St., Occidental 
 
-Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink=cpy
-
 ## Animal Shelters:
 
 - Napa County Animal Shelter at 942 Hartle Ct, Napa will shelter dogs, cats, rabbits and other household animals
@@ -97,13 +95,6 @@ Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink
 - Mystic Theatre/McNears/The Roaring Donkey has been offering laptops for fire victims to use if they need to get a hold of their financial institutions or family. Ask for Sierra Bradley.
 - Roaring Donkey, 146 Kentucky St., Petaluma, has laptops set up and Wi-Fi and chargers for people, as needed. 
 
-Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink=cpy
-
-Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink=cpy
-
--
--
-
 
 ## Quick Reference Links:
 - Closures, Evacuations, Shelters information: http://www.sacbee.com/news/local/article177893206.html
@@ -116,8 +107,6 @@ Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink
 - Santa Rosa Fire Dept website: https://srcity.org/610/Emergency-Information
 - Santa Rosa Fire Dept Facebook: https://srcity.org/610/Emergency-Information
 - Napa Fire Dept Facebook: https://www.facebook.com/City-of-Napa-Fire-Department-161766077903/
-
-
 
 
 ## Sonoma County
