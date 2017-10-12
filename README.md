@@ -9,6 +9,8 @@
 ## Available Housing:
 - https://docs.google.com/spreadsheets/d/1yeWV1dRiKFo8M1yX64--V6HLQZBSQSSenfqdoUnsiOI/edit#gid=0
 - People are opening up their land for people to stay on through Hipcamp. Check out a list and how to offer your land: https://www.hipcamp.com/journal/land/northern-california-hosts-offering-fire-evacuees-a-free-place-to-stay
+- Airbnb hosts are opening their homes for free to evacuees through Oct. 30 https://www.airbnb.com/welcome/evacuees/northerncaliforniafireevacuees
+
 
 ## Evacuation Centers:
 
@@ -118,7 +120,55 @@ Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink
 
 
 
+## Sonoma County
 
+- Medical professionals: Contact the Red Cross at 707-577-7600 for volunteer placement and assessment.
+- Community members: Just want to volunteer somewhere? Contact the Sonoma County Emergency Operations Center Shelter division at info@volunteernow.org or call 707-573-3399 to determine where you can be of assistance.
+- Redwood Empire Food Bank, 3990 Brickway Blvd., Santa Rosa, (supplier for the evacuation centers) is in serious need of nonperishable, ready-to-eat foods, cash donations, and volunteers. 707-523-7900.
+- Petaluma Vets Building, 1094 Petaluma Blvd. S, Petaluma – Needs volunteers for a variety of jobs.
+- Roaring Donkey, 146 Kentucky St., Petaluma, is accepting donations of pet food, camping supplies, tents, sleeping bags, nonperishable food, cellphone chargers, diapers, wipes, toiletries, new underwear, socks and bras. (No other clothing at this point.)
+- Xandax, 1360 Redwood Way, Petaluma is accepting donations Thursday and Friday from 8:30 a.m. to 4:30 p.m. of kids backpacks, lunchboxes, paper, pencils, small whiteboards, erasers, pens, dry erase markers/erasers, notebooks, folders, glue sticks, other general school supplies.
+- The Sweet Zone Petaluma, 151 Petaluma Blvd. So., #113, is open daily from 11-8 p.m. Please donate pencils, colored pencils, erasers, paper, graph paper, composition notebooks, pencil sharpeners, pencil boxes or bags, lunch boxes for little and big kids, sharpies, dividers, glue sticks, one inch binders, blue pens, black pens, red pens for older students, markers, small scissors, folders, spiral notebooks of papers/mead notebooks, graph paper and backpacks.
+- The Cavanagh Center (Mentor Me), 426 Eigth St., Petaluma, needs blankets; a wire racks – http://a.co/6oYbTfz; storage bins – http://a.co/0bwfpz3, http://a.co/cbXEodi, http://a.co/5UpP5Gv; sharpies; tupperware; towels; bedding; and masking tape. It could also use gift cards (to Target, grocery stores ... etc.). It’s seeking volunteers as well; email info@wmm.org or call 707-778-4798.
+- The Sonoma-Marin Fairgrounds, 175 Fairgrounds Drive, Petaluma – Contact them Thursday for new volunteer needs: 707-283-3247. Medical professional sign-up is here: http://sacb.ee/biPa. Volunteers are working shifts that rotate every 4 hours: 15-20 volunteers for shifts taking place 7 a.m. to noon; 15-20 for 5 p.m.-10 p.m.; and 5-7 volunteers for 10 p.m. to 3 a.m. and 3 a.m. to 7 a.m. Directions: Enter the fairgrounds from Gate #3 (Payran Street). Park in the livestock area. Check in at Herzog Hall to be assigned a job. Current needs: Tarps to cover donations, clear plastic bins with lids, fans, air purifier, cleaning supplies, mops, brooms, bleach (gallon), water, N95(MG) masks. Pet supplies: Drive them to the back and drop off; crates needed. About 140 head of livestock coming in from various places to the fairgrounds. They need help – Park in parking lot D and walk in do not drive on the fairgrounds.
+- Fire Relief Fund via Race For Kids Gran Fondo: https://tinyurl.com/RFK-Fire-Evacuees-Supply-Fund. Local grass-roots fundraiser with a team of volunteers who are buying supplies for shelters as new needs arise.
+- Sonoma Valley High, 20000 Broadway, Sonoma, needs clothing donations.
+- The Lucchesi Center, 320 N. McDowell Blvd., Petaluma, will needs help overnight. Sign up at the site. Also urgently needs N95 masks, along with new hairbrushes, men’s socks, men’s underwear, women’s underwear and bras, and boys and girls underwear (girls especially).
+- The Santa Rosa Gymnastics Center, 2210 Bluebell Drive, Santa Rosa, is accepting donations until 5 p.m. Wednesday.
+- Les Schwab’s four locations in Santa Rosa, Rohnert Park and Windsor are accepting donations.
+- Sonoma County Fairgrounds, 1350 Bennett Valley Road, Santa Rosa, needs volunteers for feeding livestock. It’s expecting more animals. This is also the staging area for firefighters and the army, so water and food for them is appreciated. 707-545-4200
+- Items can be taken to The Salvation Army at 93 Stony Circle, Unit D, Santa Rosa.
+- Elsie Allen High, 599 Bellevue Ave., Santa Rosa, needs volunteers and doctors and nurses for medically fragile evacuees.
+- Calvary Chapel: Doing 6 hours shifts. Call to sign up for future shifts: 707-766-1567.
+- Analy High School, 6950 Analy Ave., Sebastopol, needs volunteers, Spanish speakers for translation in particular.
+- Safari West, 3115 Porter Creek Road, Santa Rosa, needs water if you have a water truck for animals.
+- The Sonoma Humane Society, 5345 Highway 12 West, Santa Rosa, and Sonoma County Animal Services, 1247 Century Court, Santa Rosa, are offering no-cost veterinary treatment for animal burn victims. The humane society is open from 8 a.m. to 5 p.m. daily; animal services is offering 24/7 service until further notice. It is currently acting as the clearinghouse for Lost and Found pets for Sonoma County with Sonoma County Animal Services. Those who have lost or found an animal should message the humane society on Facebook and be sure to hashtag #LOSTPETSsonomacountyfire2017. The humane society is in need of special cat litter that’s better for cats with burns on their feet, Yesterday’s News. Newspapers shredded into strips also work. It also needs pet food. It also has volunteer needs for helping with phones, greeting guests, directing traffic, and helping with laundry and donation intake. Animal services is in need of water bowls (any size), disposable lasagna pans (for cat/kitten litter), animal food including sweet mix for horses or goats, egg layer for chickens, pig feed, dog and cat food (wet or dry, any brand) and grass hay for all, grain buckets, baby/wet wipes. Call animal services at 707-565-4406 for donation and general information.
+- There is a community foster Facebook network for pets: Community Foster for Tubbs Fire Animals.
+- SHARE Sonoma County has created temporary home sharing for those who have lost their housing due to the recent fires. They currently have over 40 home providers offering housing. Anyone needing housing due to the fire or offering housing should contact SHAREFire@petalumapeople.org or 707-765-8488, ext. 126.
+- Volunteer at the New Life Christian Center; here’s the signup: http://sacb.ee/bgqL.
+- Casa Grande parking lot, 333 Casa Grande Road, Petaluma, needs cleaning due to lots of people going through this week.
+- Santa Rosa Memorial, 1165 Montgomery Drive, Santa Rosa, needs medical staff. 707-525-5300
+- Elks Lodge, 2105 South McDowell Blvd.: Call 707-763-0901, ext. 0, first for future volunteer needs (currently at capacity for volunteers). 
+
+## Yuba County
+
+- The Yuba-Sutter Fairgrounds Evacuation Center, 442 Franklin Ave., Yuba City, needs items, which can be taken to the main gate. For people: Toiletries, new undergarments, diapers (kids and adults), and cases of water. For animals: Bedding, disposable baking pans for litter, small dishes, sheets to cover cages, folding cages. 
+
+## Napa County
+
+- Napa Valley College is seeking volunteers to help sort donations. Currently in need of the following: Pillowcases (new), sanitary wipes, tampons, pads, flip-flops, shower sandals, blankets, sheets (new), underclothes (new) (all sizes and genders), lip balm, baby clothes (new), pillows (new), respiratory masks, water
+- Napa Valley Community Foundation (NVCF) has mobilized its Disaster Relief Fund. Make a gift here. 
+
+## Marin County
+
+- Marin Center Exhibit Hall, 10 Avenue of the Flags, San Rafael: If you wish to volunteer, do not just show up; register at https://cvnl.org/volunteerism/.
+- Lighthouse Church, 1915 Novato Blvd., Novato, needs toddlers’ clothes, specifically 2T-3T boys and girls. 
+
+## Sacramento-area needs/options for donating
+
+- Assisted Living, 6125 Hazel Ave., brought in 50 residents from the Santa Rosa facility, which burned down. All basic necessities are needed: soaps, wipes, toothbrushes and toothpaste, toilet paper, adult diapers, socks and clothing.
+- Visionary Realty Group is accepting donations of items for fire victims through 6 p.m. Friday at 3941 Park Drive, El Dorado Hills. They are teamed up with a supplemental donation center in Petaluma and they’ve made space for them to deliver on Saturday and feed evacuees some BBQ lunch. Biggest needs currently: thermometers, air purifiers, cleaning wipes, phone chargers, pillowcases, walkers and canes, mesh laundry bags, clothespins, women’s bras new/unused all sizes, cots and air mattresses.
+- Alchemy Salon & Spa says it is accepting donations indefinitely:
 
 
 
