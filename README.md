@@ -78,6 +78,31 @@ Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink
 
 ## Free Resources for fire victims:
 
+### Free Food and Water:
+    
+-Sauced BBQ Petaluma, 51 Petaluma Blvd. S, #129, Petaluma, will be serving guests in need for free on Wednesday from 11 a.m. until they run out of food. “Hang out, charge phones, decompress.”
+- Lagunitas Brewing Co., 1280 N. McDowell Blvd., Petaluma, will have free water Wednesday from 10 a.m.-6 p.m. at their taproom. Stop in at the main office with water jugs to be filled.
+- Hana’s Japanese Restaurant, 101 Golf Course Drive, Rohnert Park, is offering full meals for 250+ people a day until the tragedy ends.
+- McGuires, 145 Kentucky St., Petaluma, is offering free food.
+- Mystic Theatre/McNears, 23 Petaluma Blvd. N, Petaluma, is serving all meals throughout the day: lunch-soup and sandwiches from 12-3 p.m.; dinner from 5-8 p.m. They can deliver or make meals to go. Contact them at 707-765-2121.
+- Elks Lodge, : 2105 S. McDowell Blvd., # A, Petaluma: Offering meals until 10 p.m. on Wednesday.
+- Don Pancho’s Mexican Food, 285 N. McDowell Blvd., Petaluma, is offering meals to those who have lost a home as well as those who have taken them in. Call 707-775-2474 to let them know the number people and if there are any allergies. 
+
+### Free Wifi
+
+- Comcast: Free internet/Comcast/Xfinity as restrictions have been removed. Opened Wi-Fi hotspots for all to use through Friday; log in as “Guest.”
+- Area locations of Copperfield’s Books are offering free Wi-Fi, allows dogs, water, stickers and crayons for children
+- Mystic Theatre/McNears/The Roaring Donkey has been offering laptops for fire victims to use if they need to get a hold of their financial institutions or family. Ask for Sierra Bradley.
+- Roaring Donkey, 146 Kentucky St., Petaluma, has laptops set up and Wi-Fi and chargers for people, as needed. 
+
+Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink=cpy
+
+Read more here: http://www.sacbee.com/news/local/article177893206.html#storylink=cpy
+
+-
+-
+
+
 ## Quick Reference Links:
 - Closures, Evacuations, Shelters information: http://www.sacbee.com/news/local/article177893206.html
 - The CHP in Marin notes that anyone who follows their Facebook page (https://www.facebook.com/chpmarin/posts/1711023302250066) from Napa, Sonoma, Lake, or Solano Counties, the emergency operations centers are pushing out information via Nixle. They say the easiest way to get this information is to text your zip code to 888777 to get information such as evacuation orders, emergency shelter locations, and road closures
