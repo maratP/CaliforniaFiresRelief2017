@@ -5,6 +5,18 @@
 - Post Needs of Offer help: https://sfbay.cropmobster.com/bay-area-fire-resources/
 - California food bank: www.cafoodbanks.org/find-food-bank
 - Register as a disaster service worker: http://volunteer.cvnl.org
+- North Bay Fire Relief (RCU account)
+https://www.redwoodcu.org/northbayfirerelief
+- Fire Relief Fund via Race For Kids Gran Fondo: https://tinyurl.com/RFK-Fire-Evacuees-Supply-Fund Local grassroots fundraiser with a team of volunteers who are buying supplies for shelters as new needs arise. Text Steve Cozza for air mattress and cot pick-up at (707) 328-9766. Tax-deductible charity.
+- Redwood Empire Food Bank: In constant need of cash for food supplies. https://interland3.donorperfect.net/weblink/WebLink.aspx?name=redempire&id=64
+- United Way of Wine Country: Fundraising for fire relief support.  www.unitedwaywinecountry.org
+- You Caring Tubbs Fire Victims Fund: https://www.youcaring.com/tubbsfirevictimssantarosacommunity-976726
+- Bay Area Firefighters & Families Fund: 
+http://www.gofundahero.com/campaign/detail/4913 
+- Wine Country Animal Lovers: In need of funds for pet surgeries/burn victims: WineCountryAnimalLovers.org/donate
+- Hopalong & Second Chance: In need of funds for displaced animals and fostering programs. https://donatenow.networkforgood.org/hopalonganimalrescue
+- Marin Humane Society: In need of funds for animal burn victims to offset the cost of care. marinhumane.org/fires
+
 
 ## Available Housing:
 - https://docs.google.com/spreadsheets/d/1yeWV1dRiKFo8M1yX64--V6HLQZBSQSSenfqdoUnsiOI/edit#gid=0
