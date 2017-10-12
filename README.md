@@ -17,7 +17,7 @@ http://www.gofundahero.com/campaign/detail/4913
 - Hopalong & Second Chance: In need of funds for displaced animals and fostering programs. https://donatenow.networkforgood.org/hopalonganimalrescue
 - Marin Humane Society: In need of funds for animal burn victims to offset the cost of care. marinhumane.org/fires
 
-## FireMAps:
+## Fire Maps:
 
 - https://maps.nwcg.gov/sa/#/%3F/38.5154/-122.4895/10
 
@@ -25,7 +25,8 @@ http://www.gofundahero.com/campaign/detail/4913
 ## Available Housing:
 - https://docs.google.com/spreadsheets/d/1yeWV1dRiKFo8M1yX64--V6HLQZBSQSSenfqdoUnsiOI/edit#gid=0
 - People are opening up their land for people to stay on through Hipcamp. Check out a list and how to offer your land: https://www.hipcamp.com/journal/land/northern-california-hosts-offering-fire-evacuees-a-free-place-to-stay
-- Airbnb hosts are opening their homes for free to evacuees through Oct. 30 https://www.airbnb.com/welcome/evacuees/northerncaliforniafireevacuees
+- Airbnb hosts are opening their homes for free to evacuees through Oct. 30
+https://www.airbnb.com/welcome/evacuees/northerncaliforniafireevacuees
 - Chanslor Ranch - Bodega Bay, Offering free beds and campsite for up to 200 people. Kid and pet friendly. (707) 875-2721
 - Lawson’s Landing: Free nights stay. You will need your own RV or camping equipment. Questions call (707) 878-2443.
 - Ashley Furniture in RP: has opened up their east side parking lot for vehicle and RV overnight parking for evacuees. You can go inside to charge cellular devices and contact loved ones.
@@ -125,7 +126,7 @@ http://www.gofundahero.com/campaign/detail/4913
 
 ## Quick Reference Links:
 - Closures, Evacuations, Shelters information: http://www.sacbee.com/news/local/article177893206.html
-- The CHP in Marin notes that anyone who follows their Facebook page (https://www.facebook.com/chpmarin/posts/1711023302250066) from Napa, Sonoma, Lake, or Solano Counties, the emergency operations centers are pushing out information via Nixle. They say the easiest way to get this information is to text your zip code to 888777 to get information such as evacuation orders, emergency shelter locations, and road closures
+- The CHP in Marin notes that anyone who follows their Facebook page (https://www.facebook.com/chpmarin/posts/1711023302250066) from Napa, Sonoma, Lake, or Solano Counties, the emergency operations centers are pushing out information via Nixle. They say **the easiest way to get this information is to text your zip code to 888777 to get information such as evacuation orders, emergency shelter locations, and road closures**
 
 ## Official Fire Department sites and updates:
 
@@ -138,8 +139,8 @@ http://www.gofundahero.com/campaign/detail/4913
 
 ## Sonoma County
 
-- Medical professionals: Contact the Red Cross at 707-577-7600 for volunteer placement and assessment.
-- Community members: Just want to volunteer somewhere? Contact the Sonoma County Emergency Operations Center Shelter division at info@volunteernow.org or call 707-573-3399 to determine where you can be of assistance.
+- **Medical professionals:** Contact the Red Cross at 707-577-7600 for volunteer placement and assessment.
+- **Community members:** Just want to volunteer somewhere? Contact the Sonoma County Emergency Operations Center Shelter division at info@volunteernow.org or call 707-573-3399 to determine where you can be of assistance.
 - Redwood Empire Food Bank, 3990 Brickway Blvd., Santa Rosa, (supplier for the evacuation centers) is in serious need of nonperishable, ready-to-eat foods, cash donations, and volunteers. 707-523-7900.
 - Petaluma Vets Building, 1094 Petaluma Blvd. S, Petaluma – Needs volunteers for a variety of jobs.
 - Roaring Donkey, 146 Kentucky St., Petaluma, is accepting donations of pet food, camping supplies, tents, sleeping bags, nonperishable food, cellphone chargers, diapers, wipes, toiletries, new underwear, socks and bras. (No other clothing at this point.)
@@ -185,6 +186,3 @@ http://www.gofundahero.com/campaign/detail/4913
 - Assisted Living, 6125 Hazel Ave., brought in 50 residents from the Santa Rosa facility, which burned down. All basic necessities are needed: soaps, wipes, toothbrushes and toothpaste, toilet paper, adult diapers, socks and clothing.
 - Visionary Realty Group is accepting donations of items for fire victims through 6 p.m. Friday at 3941 Park Drive, El Dorado Hills. They are teamed up with a supplemental donation center in Petaluma and they’ve made space for them to deliver on Saturday and feed evacuees some BBQ lunch. Biggest needs currently: thermometers, air purifiers, cleaning wipes, phone chargers, pillowcases, walkers and canes, mesh laundry bags, clothespins, women’s bras new/unused all sizes, cots and air mattresses.
 - Alchemy Salon & Spa says it is accepting donations indefinitely:
-
-
-
