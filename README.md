@@ -10,6 +10,11 @@
 - https://docs.google.com/spreadsheets/d/1yeWV1dRiKFo8M1yX64--V6HLQZBSQSSenfqdoUnsiOI/edit#gid=0
 - People are opening up their land for people to stay on through Hipcamp. Check out a list and how to offer your land: https://www.hipcamp.com/journal/land/northern-california-hosts-offering-fire-evacuees-a-free-place-to-stay
 - Airbnb hosts are opening their homes for free to evacuees through Oct. 30 https://www.airbnb.com/welcome/evacuees/northerncaliforniafireevacuees
+- Chanslor Ranch - Bodega Bay, Offering free beds and campsite for up to 200 people. Kid and pet friendly. (707) 875-2721
+- Lawson’s Landing: Free nights stay. You will need your own RV or camping equipment. Questions call (707) 878-2443.
+- Ashley Furniture in RP: has opened up their east side parking lot for vehicle and RV overnight parking for evacuees. You can go inside to charge cellular devices and contact loved ones.
+- Sonoma Raceway - Evacuation Center for self-contained RV’s and campers now available. Basic RV services.There will be security on site. Enter campground at Gate 6, on Hwy 121, ¼ mile north of Hwy 37. More info call 800-870-7223 or email sonomaraceway@sonomaraceway.com.
+- Community list for temporary housing: https://docs.google.com/spreadsheets/d/1yeWV1dRiKFo8M1yX64--V6HLQZBSQSSenfqdoUnsiOI/edit#gid=0 
 
 
 ## Evacuation Centers:
@@ -75,6 +80,12 @@
 ## Air Quality:
 - Bay Area Air Quality Management District: http://www.baaqmd.gov/
 - www.AirNow.gov
+- https://weather.weatherbug.com/life/air-quality/
+
+## Missing a relative or mark yourself as "Safe":
+
+- https://safeandwell.communityos.org/cms/index.php
+
 
 ## Free Resources for fire victims:
 
